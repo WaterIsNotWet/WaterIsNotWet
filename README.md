@@ -1,1 +1,1 @@
-hi my name is water and i'm in interested in coding and stuff related to it, im also really bad at coding:(, if you need to contact me, my discord is waterisnotwet0
+Hi, my name is Water. I mostly create cheats for Rec Room, but I don't share them. If you need to contact me, my Discord is waterisnotwet0.
